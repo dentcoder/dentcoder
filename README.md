@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dentcoder
+- 👋 Hi, I’m farzam mousavi @dentcoder
 - 👀 I’m interested in biology and programming and neuroscience
 - 📫 How to reach me farzammousavicom@gmail.com
 - 🦷 a full time dentist and a part time coder
